@@ -1,2 +1,2 @@
 # People
-[Call me](https://umberban.github.io/People/index.html)
+[Call me](https://umberban.github.io/Phone/index.html)
